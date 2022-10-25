@@ -1,4 +1,3 @@
-# Assignments
 
 Hi, my name is Ajayi Abiodun.
 
